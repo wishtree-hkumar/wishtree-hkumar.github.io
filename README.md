@@ -1,1 +1,0 @@
-# wishtree-hkumar.github.io
